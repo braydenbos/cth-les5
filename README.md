@@ -5,30 +5,43 @@
 ## benodigdheden
 •95 g
 gepelde pistachenoten
+
 •8
 middelgrote eieren
+
 •1 tl
 citroensap
+
 •325 g
 fijne kristalsuiker
+
 •10 g
 maizena
+
 •100 g
 ongezouten roomboter
+
 •100 g
 zelfrijzend bakmeel
+
 •¼ tl
 zout
+
 •225 g
 verse frambozen
+
 •35 g
 gevriesdroogde fruit mix
+
 •500 g
 mascarpone
+
 •250 g
 volle kwark
+
 •30 g
 poedersuiker
+
 •1½ tl
 vanillearoma
 
