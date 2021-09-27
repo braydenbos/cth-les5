@@ -1,6 +1,6 @@
 # Meringuetaart met mascarpone, pistache en frambozen
 
-![Taart](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ah.nl%2Fallerhande%2Frecept%2FR-R1192640%2Fmeringuetaart-met-mascarpone-pistache-en-frambozen&psig=AOvVaw2oH7phimRp0Lq9SOHezoSG&ust=1632824930262000&source=images&cd=vfe&ved=0CAkQjRxqFwoTCMCVkIL5nvMCFQAAAAAdAAAAABAJ)
+![Taart](https://static.ah.nl/static/recepten/img_RAM_PRD126727_1224x900_JPG.jpg)
 
 ## benodigdheden
 •95 g
