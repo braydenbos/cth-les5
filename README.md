@@ -1,4 +1,4 @@
-# Meringuetaart met mascarpone, pistache en frambozen
+# Meringuetaart met mascarpone, pistache en frambozen.
 
 ![Taart](https://static.ah.nl/static/recepten/img_RAM_PRD126727_1224x900_JPG.jpg)
 
